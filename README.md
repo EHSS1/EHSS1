@@ -1,0 +1,7 @@
+- 👋 Olá, sou Eduardo Henrique
+- 👀 Estou interessado em estágio na área de Análise e Desenvolvimento de Sistemas.
+- 🌱 No momento, estou aprendendo Análise e Desenvolvimento de Sistemas na Faculdade Projeção Sobradinho.
+- 💞️ Estou procurando colaborar em projetos de nas áreas que estou estudando.
+- 📫 Como entrar em contato comigo: ehenriqueses@gmail.com ou 61-99134-3650
+- 😄 Pronomes: Ele/Dele
+- ⚡ Curiosidade: Tenho uma vasta experiência na área bancária, onde desenvolvi habilidades de liderança e auditoria, e estou ansioso para aplicar essas habilidades no campo da tecnologia.
