@@ -2,6 +2,6 @@
 - 👀 Estou interessado em estágio na área de Análise e Desenvolvimento de Sistemas.
 - 🌱 No momento, estou aprendendo Análise e Desenvolvimento de Sistemas na Faculdade Projeção Sobradinho.
 - 💞️ Estou procurando colaborar em projetos de nas áreas que estou estudando.
-- 📫 Como entrar em contato comigo: ehenriqueses@gmail.com ou 61-99134-3650
+- 📫 Como entrar em contato comigo: ehenriqueses@gmail.com, 61-99134-3650 ou www.linkedin.com/in/ehss1/
 - 😄 Pronomes: Ele/Dele
 - ⚡ Curiosidade: Tenho uma vasta experiência na área bancária, onde desenvolvi habilidades de liderança e auditoria, e estou ansioso para aplicar essas habilidades no campo da tecnologia.
