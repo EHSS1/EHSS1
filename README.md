@@ -44,4 +44,4 @@ Minha trajetória profissional de 15 anos em um ambiente bancário complexo, som
 ### 📫 Contato
 
 * **E-mail:** ehenriqueses@gmail.com
-* **LinkedIn:** (https://www.linkedin.com/in/ehss1/)
+* **LinkedIn:** https://www.linkedin.com/in/ehss1/
